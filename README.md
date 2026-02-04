@@ -1,2 +1,2 @@
 # lecture
-coming soon more data !
+More data Coming Soon !!!!!
