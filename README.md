@@ -1,3 +1,3 @@
 # lecture
 
-going to add more lecuters
+going to add more lectures here!!!!
