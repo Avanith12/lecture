@@ -1,3 +1,1 @@
 # lecture
-
-adding mroie lectures
