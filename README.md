@@ -1,2 +1,3 @@
 # lecture
 
+adding mroie lectures
